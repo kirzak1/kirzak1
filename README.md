@@ -1,1 +1,1 @@
-<p align="center"> <img src="ССЫЛКА_НА_БАННЕР" width="500"> </p> <h1 align="center">˖᯽ ݁˖ hikr / kirzaki ༄˖°.</h1> <p align="center"> ВОЗРАСТ ⌇ МЕСТОИМЕНИЯ ⌇ СТАТУС </p>
+<p align="center"> <img src=https://github.com/kirzak1/kirzak1/blob/main/d506ce91562fb466aedd766ec11e5044.jpg?raw=true width="500"> </p> <h1 align="center">˖᯽ ݁˖ hikr / kirzaki ༄˖°.</h1> <p align="center"> ВОЗРАСТ ⌇ МЕСТОИМЕНИЯ ⌇ СТАТУС </p>
